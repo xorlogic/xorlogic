@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-Coming Soon!
+Welcome to my profile, have a great day.
